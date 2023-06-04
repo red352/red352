@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-## I’m mainly learning JAVA right now, but I’m happy to discuss any technical issues with you
+# I’m mainly learning JAVA right now, but I’m happy to discuss any technical issues with you! 😊😊
 
-## 😊😊![SoExcited~GIF (2)](https://github.com/red352/red352/assets/54206379/710eebe4-07e5-40ab-96af-ed46755a2063)
+![SoExcited~GIF (2)](https://github.com/red352/red352/assets/54206379/710eebe4-07e5-40ab-96af-ed46755a2063)
 
 
 <!--
